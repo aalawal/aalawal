@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Adeola
-- 👀 I’m interested in Bournemouth and Food
+- 👀 I’m interested in Diamond Rings and Popping Chamapange and a Rich Husband
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate on Machine Learning projects /Marketing Analytics
 - 📫 How to reach me 
